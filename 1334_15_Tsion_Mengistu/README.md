@@ -1,1 +1,1 @@
-we would like to learn new programming languages.
+we would like master new skills.
